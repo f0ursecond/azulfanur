@@ -1,7 +1,2 @@
-# azulfanur
-My Personal Repository
+nooooo
 
-Random Intelligent Asian Guy
-steamcommunity.com/azulfanur
-yuhu
-awawawa
